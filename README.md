@@ -1,1 +1,1 @@
-# mixingmagican.github.io
+# mixingmagician.github.io
